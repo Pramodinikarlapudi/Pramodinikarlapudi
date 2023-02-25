@@ -1,5 +1,5 @@
 <h1 align="center">Hi 👋, I'm Pramodini</h1>
-<h3 align="center">A passionate Competitive Programmer from India</h3>
+<h3 align="center">A Cyber security enthusiast</h3>
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=pramodinikarlapudi&label=Profile%20views&color=0e75b6&style=flat" alt="pramodinikarlapudi" /> </p>
 
