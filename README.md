@@ -16,6 +16,8 @@ I’m really excited about the journey ahead and the projects I’ll create with
 
 ପ꒰ ˶• ༝ •˶꒱ଓ 🌸🤍  
 
+Other than tech, my happy place is gym ! Any fitness enthusiasts here hmm ? ᕙ( •̀ ᗜ •́ )ᕗ
+
 Thank you for taking the time to learn a bit about me and my work 🥰.  
 I’m sending warm greetings your way, and I hope the rest of your day is as bright and productive as you are! 💕
 
